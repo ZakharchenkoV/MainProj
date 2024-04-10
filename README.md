@@ -1,3 +1,1 @@
 # Elbrus finaly
-
-VOVA LOH
